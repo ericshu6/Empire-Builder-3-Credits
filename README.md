@@ -11,3 +11,4 @@ Smile High, Teddy Roxpin - Roominate https://chll.to/52e1f0b4 <br> <br>
 *Partners:* <br>
 Lucas Tran <br>
 
+https://icecream629.github.io/Empire-Builder-3-Credits/
